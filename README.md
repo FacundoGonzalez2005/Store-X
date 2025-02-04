@@ -6,7 +6,7 @@ Presentación de Store-X:
 https://www.canva.com/design/DAGVJ1y1dy8/UGL3Ujd4Z9GR_gbB44Qi5A/view?utm_content=DAGVJ1y1dy8&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
 Video explicativo:
-Enlace al video
+https://youtube/sghxdmh545U
 
 Manual de usuario:
 https://www.canva.com/design/DAGU4xsQ7Hk/EC8BejGFpmSzkkZn2qF5PQ/view?utm_content=DAGU4xsQ7Hk&utm_campaign=designshare&utm_medium=link&utm_source=editor
